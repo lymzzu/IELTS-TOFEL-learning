@@ -42,7 +42,7 @@ fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomT
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
 智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
 </br>
-![avatar](amm1.png)
+![avatar](amm1.png)    <img src="打赏码.jpg" width=200> 
 </br>
 【失效问题】如果哪个资料链接失效，请加群告知 </br>
 【欢迎加入雅思备考夸夸qq群，一起夸夸】707257154 </br>
