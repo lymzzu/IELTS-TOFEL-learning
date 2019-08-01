@@ -17,6 +17,8 @@ https://www.baiduwp.com/   打开这个网址，输入链接就可以直接下�
 剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
 更多资料，雅思出国夸夸群：707257154 请加群免费获取。
 </br>
+![avatar](打赏码.jpg)
+</br>
 ## *托福
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
 考虫全套：链接：https://pan.baidu.com/s/1dPIaHggibR6SEr8dvbNuSg 提取码：r4m8 </br>
